@@ -10,6 +10,9 @@
 
 ### 4月番:
 - [行骗天下JP コンフィデンスマンJP](https://movie.douban.com/subject/27605548/)
+- [未解决之女 警视厅文件捜査官 未解決の女 警視庁文書捜査官](https://movie.douban.com/subject/30170153/)
+- [正义之凛 正義のセ](https://movie.douban.com/subject/30037126/)
+- [女神探夏洛克 ミス・シャーロック](https://movie.douban.com/subject/27594260/)
 
 ## 动画:
 
